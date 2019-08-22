@@ -18,4 +18,4 @@
 
 *  Anything else I need to know to help you do well?
 
-* What you want to learn in this course:
+* What you want to learn in this course: EVERYTHING!
